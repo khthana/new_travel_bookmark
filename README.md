@@ -13,4 +13,11 @@
 - [รวมร้านอร่อยอยุธยาตั้งแต่เช้าจนค่ำ](https://www.facebook.com/lekha.food/posts/pfbid02endCkCbGzJ3W3MAbxwRbvfR42uDUM7qioF3s1FqRMmgnH4gpj2hcgjVG8Um1sBB7l)
 - [ ร้านสตางค์ เครป & คอฟฟี่ & สมูทตี้ ](https://www.facebook.com/ginmaiyood/posts/pfbid02NUY6e23UqppRJ6rQWppFPrec8XvL4kvCQmVFJGMz6u82e8Wq6ryx1G95MGPy8mivl)
 - [ ครัวอิ่มอร่อย นครหลวง](https://www.facebook.com/HungryAyutthaya/posts/pfbid02FWtyECBZRkdCJPZ3xYuQiUhzbQVv8J3pEDhG27Cajdc2HVPx4Hps3iKTCqG5aeT1l)
-- 
+
+## นครนายก
+- [5 คาเฟ่นครนายก บรรยากาศสุดกรีน ชมวิวกลางทุ่งนา](https://www.tripgether.com/%e0%b8%ad%e0%b8%b1%e0%b8%9b%e0%b9%80%e0%b8%94%e0%b8%95%e0%b9%80%e0%b8%a3%e0%b8%b7%e0%b9%88%e0%b8%ad%e0%b8%87%e0%b9%80%e0%b8%97%e0%b8%b5%e0%b9%88%e0%b8%a2%e0%b8%a7/5-%e0%b8%84%e0%b8%b2%e0%b9%80%e0%b8%9f%e0%b9%88%e0%b8%99%e0%b8%84%e0%b8%a3%e0%b8%99%e0%b8%b2%e0%b8%a2%e0%b8%81-%e0%b8%9a%e0%b8%a3%e0%b8%a3%e0%b8%a2%e0%b8%b2%e0%b8%81%e0%b8%b2%e0%b8%a8%e0%b8%aa%e0%b8%b8%e0%b8%94%e0%b8%81%e0%b8%a3%e0%b8%b5%e0%b8%99-%e0%b8%8a%e0%b8%a1%e0%b8%a7%e0%b8%b4%e0%b8%a7%e0%b8%81%e0%b8%a5%e0%b8%b2%e0%b8%87%e0%b8%97%e0%b8%b8%e0%b9%88%e0%b8%87%e0%b8%99%e0%b8%b2/)
+- [แจกแพลน เที่ยวนครนายก](https://salehere.co.th/articles/nakhonnayok-one-day-trip?ref=fbsh)
+- [เขาช่องลม](https://www.facebook.com/salehere/posts/pfbid032wUuSb3mFs2GR5Fy4RSYsPo2bpNKDwtfwuhezqrzWiXKfA6WijEoAtkG1QiR9zZwl)
+- [15 ร้านอาหารนครนายก ลิ้มรสเมนูเด็ด ชิลกับธรรมชาติ](https://www.wongnai.com/listings/restaurants-nakhon-nayok?fbclid=IwY2xjawFqOzBleHRuA2FlbQIxMAABHePjDVFVkWD8RxECODiKMoIUR6cxR6gf9N5t0WhqQXZ3kV0LhTK7u8bUsg_aem_NqOzqaHCqBxpLcYNbmb19Q)
+
+
