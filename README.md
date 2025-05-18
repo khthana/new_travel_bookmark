@@ -25,6 +25,8 @@
 - [สถานที่ต่าง ๆ ในจังหวัดระยอง](https://www.facebook.com/SCGCOfficial/posts/pfbid0LcrefQmruNEN1SY5iCSN6sxdgfHreqGaCSxtuiBWrCCKAK6UMusxuKvmpMXnJMBwl)
 - [ทริปสำหรับคนมีเวลาน้อย​ 10 พิกัด​ 2 วัน​ 1 คืน](https://www.facebook.com/permalink.php?story_fbid=pfbid02iPersLo1j3zytegNyEBxWCfanejM5SD5TapZy52HLcA5vxig5ULojKYb9eTbR196l&id=100063906737806)
 - [ดำน้ำดูปลา 3 เกาะ](https://www.facebook.com/sneakoutclub/posts/pfbid0zdbKu3ZY2UWLD67yzMAgMge8AJvn3iU2MLxGoYjfYR9TbdUGj4ELMBf6ipNNjySAl)
+- [20 สถานที่ ที่ดีต่อกายใจ](https://readthecloud.co/take-me-out-rayong-happy-city/?fbclid=IwY2xjawFqOx5leHRuA2FlbQIxMAABHUpKcCQZY2APvZv_uLNvjmFJwtpDcIroNIZnRE66JnXVdm6lNCPIwFH5Ug_aem_4ef095VUaRWGcG4Hc5yf3w)
+- 
 
 
 
